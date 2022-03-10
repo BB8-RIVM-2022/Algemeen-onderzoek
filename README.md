@@ -1,0 +1,2 @@
+# Preventie-gezondheid-en-maatschappij-voor-RIVM
+Het RIVM (Koppelingen naar een externe site.) (Rijksinstituut voor Volksgezondheid en Milieu) zet zich in voor een gezonde bevolking en een duurzame, veilige en gezonde leefomgeving. Dit doen we op basis van onafhankelijk wetenschappelijk onderzoek.  We geven advies aan de overheid, professionals en burgers en delen onze kennis. Zo ondersteunen wij de samenleving om onszelf en onze leefomgeving gezond te houden
